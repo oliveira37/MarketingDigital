@@ -1,4 +1,4 @@
-PARA VISUALIZAR OS ARQUIVOS CLIQUE EM BAIXAR!
+PARA VISUALIZAR OS ARQUIVOS CLIQUE NO ARQUIVO E DEPOIS EM DOWNLOAD!
 Bem-vindo ao meu Repositório de Marketing
 Olá! Eu sou Ruan Santos Oliveira, um apaixonado por marketing digital e criação de conteúdo. Neste repositório, você encontrará uma seleção dos meus trabalhos de marketing, incluindo vídeos, fotos e outras peças criativas que desenvolvi ao longo da minha carreira.
 
